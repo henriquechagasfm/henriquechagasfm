@@ -1,1 +1,1 @@
-Currently working as Junior Systems Engineer at Indra Minsait.
+Currently working as Junior Software Engineer at Pitang.
